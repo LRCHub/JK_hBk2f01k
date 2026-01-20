@@ -1,4 +1,4 @@
-# MASS OF THE FERMENTING DREGS – Aoi, Koi, Daidaiiro No Hi
+# MASS OF THE FERMENTING DREGS – 青い、濃い、橙色の日 - Aoi, Koi, Daidaiiro No Hi
 
 > **歌詞登録ステータス：同期歌詞あり**
 
